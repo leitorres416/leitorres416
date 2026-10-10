@@ -13,4 +13,4 @@ Full Stack Developer passionate about problem solving and crafting digital exper
 ## ⚡ Fun facts:
 - I love cats and have an orange one 🐈
 - Two of my favorite anime/manga are JoJo's Bizarre Adventure and Black Clover 
-- I like to watch movies, listen to music and code things for fun on my free time
+- I like to watch movies, listen to music and code things for fun in my free time
